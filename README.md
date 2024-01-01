@@ -1,11 +1,5 @@
 # brjabuhs.github.io
 BORJA, XIAN CRISTINE O. 
 
-# GRENTPEREZ
-![GrantPerez](https://www.scoutmag.ph/wp-content/uploads/2023/06/c88d2ac1-634b-4771-8960-60da96de56f7-1140x600.jpeg)
-
-Authentic and carefree is how anyone would describe Grant—with stage name grentperez—the Filipino-Australian singer-songwriter behind the hit single “Cherry Wine.” 
-
-One look at his many covers on YouTube and immediately his charm and apparent talent would shine through, captivating previous onlookers to become die-hard fans. 
-
-
+# NewJeans
+![NewJeans](https://www.google.com/url?sa=i&url=https%3A%2F%2Fkbopped.com%2F2022%2F08%2F14%2Fsong-review-newjeans-hype-boy%2F&psig=AOvVaw1qsY0rrXQfpdW2VB62lE4j&ust=1704198352608000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPDI0N2XvIMDFQAAAAAdAAAAABAa.jpeg)
