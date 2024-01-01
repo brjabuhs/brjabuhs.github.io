@@ -1,5 +1,10 @@
 # brjabuhs.github.io
 BORJA, XIAN CRISTINE O. 
 
-# NewJeans
-![NewJeans](https://www.google.com/url?sa=i&url=https%3A%2F%2Fkbopped.com%2F2022%2F08%2F14%2Fsong-review-newjeans-hype-boy%2F&psig=AOvVaw1qsY0rrXQfpdW2VB62lE4j&ust=1704198352608000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPDI0N2XvIMDFQAAAAAdAAAAABAa.jpeg)
+# NewJeans (뉴진스)
+![NewJeans](https://kbopped.files.wordpress.com/2022/08/newjeans-concept-e1660375504641.jpeg?w=1200)
+
+On August 1st, the new K-POP group NewJeans debuted through their EP “New Jeans.” NewJeans is a five-member girl group under ADOR, a South Korean record sub-label by HYBE, and managed by Chief Brand Officer Min Hee Jin. NewJeans is the first kpop group announced by ADOR, thus, the girls have already gained lots of attention even before their debut. On July 22, NewJeans released the music video of their lead track “Attention.” 
+
+# Let’s take a closer look at the NewJeans members!
+
