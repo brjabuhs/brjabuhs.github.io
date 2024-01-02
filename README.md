@@ -514,5 +514,5 @@
 
 > Prior to her debut with NewJeans in 2022, Hyein was part of a kid Kpop group called U.SSO Girl under the stage name U.Jeong. The group debuted in 2017. Hyein left the group in 2018. Hyein was also part of the Pocket TV YouTube program BoniHani.
 
-# VISIT NJ SPOTIFY ACCOUNT!
+# VISIT NJ'S SPOTIFY ACCOUNT!
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/6HvZYsbFfjnjFrWF950C9d?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
