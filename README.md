@@ -86,34 +86,44 @@
 
 
 
-  **Profile**
+**Profile**
 
 • Stage Name: Minji
 
+
 • Full Name: Kim Min Ji
 
-• Native Name: ***(김민지)***
+
+• Native Name:***(김민지)***
+
 
 • Emoji: Minji 🐻
 
+
 • Birthday: May 7, 2004
+
 
 • Age: 19 years old
 
+
 • Zodiac Sign: Taurus
+
 
 • Country of Birth: South Korea
 
+
 • Height: 169 cm (5'7'')
 
+
 • MBTI Personality Type: *ESTJ*	= Extroverted, observant, thinking, judging
+
 
 • Position: vocalist, dancer
   
   
   
   
-  # Hanni
+# Hanni
 <p align="center">
   <img src="https://i.postimg.cc/0N9fyZRx/hanni.jpg">
 
@@ -130,34 +140,44 @@
 
 
 
-  **Profile**
+**Profile**
 
 • Stage Name: Hanni
 
+
 • Full Name: Phạm Ngọc Hân
 
-• Native Name: ***(Phạm Ngọc Hân)***
+
+• Native Name:***(Phạm Ngọc Hân)***
+
 
 • Emoji: Hanni 🐰
 
+
 • Birthday: Oct 6, 2004
+
 
 • Age: 19 years old
 
+
 • Zodiac Sign: Libra
+
 
 • Country of Birth: Vietnam
 
+
 • Height: 161.7 cm (5'4'')
 
+
 • MBTI Personality Type: *INFP* = Introverted, intuitive, feeling, prospecting
+
 
 • Position: vocalist, dancer
   
   
   
   
-  # Danielle
+# Danielle
 <p align="center">
   <img src="https://i.postimg.cc/hjgHgVM7/dani.jpg">
 
@@ -174,34 +194,44 @@
 
 
 
-  **Profile**
+**Profile**
 
 • Stage Name: Danielle
 
+
 • Full Name: Danielle Marsh
 
-• Korean Name: Mo Ji Hye ***(모지혜)***
+
+• Korean Name: Mo Ji Hye***(모지혜)***
+
 
 • Emoji: Danielle 🐶
 
+
 • Birthday: Apr 11, 2005
 
-• Age: 19 years old
+
+• Age: 18 years old
+
 
 • Zodiac Sign: Aries
 
+
 • Country of Birth: South Korea
+
 
 • Height: 165 cm (5'5'')
 
+
 • MBTI Personality Type: *ENFP, ENFJ* =	Extroverted, intuitive, feeling, prospecting
+
 
 • Position: vocalist, dancer
   
   
   
   
-  # Haerin
+# Haerin
 <p align="center">
   <img src="https://i.postimg.cc/8CwbJWNv/haerin.jpg">
 
@@ -218,34 +248,44 @@
 
 
 
-  **Profile**
+**Profile**
 
 • Stage Name: Haerin
 
+
 • Full Name: Kang Haerin
 
-• Native Name: ***(강해린)***
+
+• Native Name:***(강해린)***
+
 
 • Emoji: Haerin 🐹
 
+
 • Birthday: May 15, 2006
 
-• Age: 19 years old
+
+• Age: 17 years old
+
 
 • Zodiac Sign: Taurus
 
+
 • Country of Birth: South Korea
+
 
 • Height: 164.5 cm (5'5'')
 
+
 • MBTI Personality Type: *ISTP, INTP* =	Introverted, observant, thinking, prospecting
+
 
 • Position: vocalist, dancer
   
   
   
   
-  # Hyein
+# Hyein
 <p align="center">
   <img src="https://i.postimg.cc/d11j81Vx/hyein.jpg">
 
@@ -266,23 +306,33 @@
 
 • Stage Name: Hyein
 
+
 • Full Name: Lee Hyein
+
 
 • Native Name: ***(이혜인)***
 
+
 • Emoji: Hyein 🐣
+
 
 • Birthday: Apr 21, 2008
 
+
 • Age: 15 years old
+
 
 • Zodiac Sign: Taurus
 
+
 • Country of Birth: South Korea
+
 
 • Height: 170 cm (5'7'')
 
+
 • MBTI Personality Type: *INFP, ENFP* =	Introverted, intuitive, feeling, prospecting
+
 
 • Position: vocalist, dancer, maknae
 
