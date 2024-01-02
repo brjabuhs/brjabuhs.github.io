@@ -86,7 +86,7 @@
 
 
 
-**Profile**
+### **Profile**
 
 · Stage Name: Minji
 
@@ -140,7 +140,7 @@
 
 
 
-**Profile**
+### **Profile**
 
 · Stage Name: Hanni
 
@@ -194,7 +194,7 @@
 
 
 
-**Profile**
+### **Profile**
 
 · Stage Name: Danielle
 
@@ -248,7 +248,7 @@
 
 
 
-**Profile**
+### **Profile**
 
 · Stage Name: Haerin
 
@@ -302,7 +302,7 @@
 
 
 
-**Profile**
+### **Profile**
 
 · Stage Name: Hyein
 
@@ -335,3 +335,7 @@
 
 
 · Position: vocalist, dancer, maknae
+
+
+
+
