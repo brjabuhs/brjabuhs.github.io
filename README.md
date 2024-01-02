@@ -67,7 +67,7 @@
 > Members were selected during the 2019 global auditions by Big Hit and Source Entertainment and have been training for over 2 years.
 
 
-# Minji
+## Minji
 <p align="center">
   <img src="https://i.postimg.cc/k5WkkTNm/minji.jpg">
 
@@ -78,7 +78,7 @@
   
   
   
-# Hanni
+## Hanni
 <p align="center">
   <img src="https://i.postimg.cc/0N9fyZRx/hanni.jpg">
 
@@ -89,7 +89,7 @@
   
   
   
-# Danielle
+## Danielle
 <p align="center">
   <img src="https://i.postimg.cc/hjgHgVM7/dani.jpg">
 
@@ -100,7 +100,7 @@
   
   
   
-# Haerin
+## Haerin
 <p align="center">
   <img src="https://i.postimg.cc/8CwbJWNv/haerin.jpg">
 
@@ -111,7 +111,7 @@
   
   
   
-# Hyein
+## Hyein
 <p align="center">
   <img src="https://i.postimg.cc/d11j81Vx/hyein.jpg">
 
