@@ -69,15 +69,12 @@
 
 ## Minji
 ![NewJeansMINJI](https://i.postimg.cc/k5WkkTNm/minji.jpg) 
+
+
 > Kim Min Ji (김민지; born May 7, 2004) is a South Korean idol, the leader, and the oldest member of the Kpop group NewJeans under ADOR. Minji made her debut with NewJeans on Aug 1, 2022 at the age of 18.
 
 
-
-
-
 > Minji is the oldest member of NewJeans. She is a former trainee from JYP Entertainment. She appeared in BTS' 2021 Permission to Dance MV. She was part of the 2019 global auditions by Big Hit and Source Entertainment. Minji was also the the face for 2019 Global Audition promotional video.
-
-
 
 
 ### **Profile**
@@ -113,24 +110,17 @@
 
 
 · Position: vocalist, dancer
-  
 
 
 
+## Hanni
+![NewJeansHANNI](https://i.postimg.cc/0N9fyZRx/hanni.jpg) 
 
 
-
-
-
-  
 > Phạm Ngọc Hân (하니; born Oct 6, 2004), better known as Hanni, is a Vietnamese-Australian singer based in South Korea. She is a member of the Kpop group NewJeans under ADOR. Hanni made her Kpop debut on August 1, 2022 at the age of 17.
 
 
-
-
 > Hanni is a Vietnamese-Australian '04 liner. She was 17 years old when she debuted with NewJeans. She can speak Korean, English, and Vietnamese. Hanni passed the 2019 Big Hit global audition and trained for 2.5 years before her debut. She is, in fact, one of the few Vietnamese to debut in a Kpop girl group. Hanni was credited as one of the lyricists of the groups' lead single, Hype Boy.
-
-
 
 
 ### **Profile**
@@ -169,11 +159,8 @@
 
 
 
-
-
-
-
-
+## Danielle
+![NewJeansDANIELLE](https://i.postimg.cc/hjgHgVM7/dani.jpg) 
 
 > Danielle Marsh (모지혜; born Apr 11, 2005) is a Korean-Australian singer based in South Korea. She is a member of the Kpop group NewJeans under ADOR. Danielle made her debut with NewJeans on August 1, 2022 at the age of 17.
 
@@ -218,17 +205,13 @@
 
 
 · Position: vocalist, dancer
-  
-
-
-
-
-
-
-
 
 
   
+## Haerin
+![NewJeansHAERIN](https://i.postimg.cc/8CwbJWNv/haerin.jpg) 
+
+
 > Kang Haerin (강해린; born May 15, 2006) is a South Korean singer and a member of the Kpop group NewJeans under ADOR. She made her debut with NewJeans on August 1, 2022 at the age of 16.
 
 
@@ -275,12 +258,8 @@
 
 
 
-
-
-
-
-
-
+## Hyein
+![NewJeansHYEIN](https://i.postimg.cc/d11j81Vx/hyein.jpg) 
 
 
 > Lee Hyein (이혜인; born Apr 21, 2008) is a South Korean singer and the youngest member of the Kpop group NewJeans under ADOR. She made her debut with NewJeans on August 1, 2022 at the age of 14.
@@ -327,45 +306,9 @@
 
 · Position: vocalist, dancer, maknae
 
-
-
-    
-## Hanni
-<p align="center">
-  <img src="https://i.postimg.cc/0N9fyZRx/hanni.jpg">
-
-  
-  
-
   
   
   
-  
-## Danielle
-<p align="center">
-  <img src="https://i.postimg.cc/hjgHgVM7/dani.jpg">
-
-  
-  
-  
-
-  
-  
-  
-## Haerin
-<p align="center">
-  <img src="https://i.postimg.cc/8CwbJWNv/haerin.jpg">
-
-  
-  
-
-  
-  
-  
-  
-## Hyein
-<p align="center">
-  <img src="https://i.postimg.cc/d11j81Vx/hyein.jpg">
 
   
   
