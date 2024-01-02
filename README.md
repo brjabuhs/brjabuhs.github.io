@@ -2,6 +2,7 @@
 ### BORJA, XIAN CRISTINE O. 
 
 # **NewJeans** ***(뉴진스)***
+### STAN NJ!!!!!!!!!!!!!!!!!!
 ![NewJeans](https://kbopped.files.wordpress.com/2022/08/newjeans-concept-e1660375504641.jpeg?w=1200)
 
 > On August 1st, the new K-POP group NewJeans debuted through their EP “New Jeans.” NewJeans is a five-member girl group under ADOR, a South Korean record sub-label by HYBE, and managed by Chief Brand Officer Min Hee Jin. NewJeans is the first kpop group announced by ADOR, thus, the girls have already gained lots of attention even before their debut. On July 22, NewJeans released the music video of their lead track “Attention.” 
@@ -512,18 +513,4 @@
 > Lee Hyein was born on April 21, 2008 in Incheon, South Korea as one of three children.
 
 > Prior to her debut with NewJeans in 2022, Hyein was part of a kid Kpop group called U.SSO Girl under the stage name U.Jeong. The group debuted in 2017. Hyein left the group in 2018. Hyein was also part of the Pocket TV YouTube program BoniHani.
-
-
-![
-  
-  
-  
-
-  
-  
-  
-
-
-
-
 
