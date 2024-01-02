@@ -79,6 +79,7 @@
 > Kim Min Ji (김민지; born May 7, 2004) is a South Korean idol, the leader, and the oldest member of the Kpop group NewJeans under ADOR. Minji made her debut with NewJeans on Aug 1, 2022 at the age of 18.
 
 
+> The name of the group, NewJeans, is meant to describe how the group will lead a new trend. Similar to jeans, which are loved by people of all ages and are trendy, the group will become an icon of this era. The name is also a wordplay on the phrase new genes. This implies the group will pave the way of a new generation in pop music.
 
 
 > Minji is the oldest member of NewJeans. She is a former trainee from JYP Entertainment. She appeared in BTS' 2021 Permission to Dance MV. She was part of the 2019 global auditions by Big Hit and Source Entertainment. Minji was also the the face for 2019 Global Audition promotional video.
