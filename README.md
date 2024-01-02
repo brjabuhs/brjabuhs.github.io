@@ -336,9 +336,11 @@
 
 > Danielle Marsh was born on born April 11, 2005 in Gyeonggi-do Munsan-eup, South Korea to an Australian father and a Korean mother. She is the youngest of children.
 
-﻿> Danielle was a kid model in Korea until she was 7 years old. She filmed commercials and made several TV appearances as a kid. She appeared in tvN's Rainbow Kindergarten in 2011 and JTBC's Shinhwa Broadcast in 2012. At the time, she went by her Korean name 모지혜 (Mo Ji Hye).
+ 
+> Danielle was a kid model in Korea until she was 7 years old. She filmed commercials and made several TV appearances as a kid. She appeared in tvN's Rainbow Kindergarten in 2011 and JTBC's Shinhwa Broadcast in 2012. At the time, she went by her Korean name 모지혜 (Mo Ji Hye).
 
-﻿> Growing up, Danielle moved back and forth between Australia and South Korea. In October 2019, she passed HYBE's global audition at the age of 14. She trained for 2.5 years before making her official debut with NewJeans in 2022.
+
+> Growing up, Danielle moved back and forth between Australia and South Korea. In October 2019, she passed HYBE's global audition at the age of 14. She trained for 2.5 years before making her official debut with NewJeans in 2022.
 
 
   
@@ -422,7 +424,8 @@
 
 > Haerin was born on May 15, 2006 in Gyeongsangbuk-do Gimcheon, South Korea as an only child. She studied at Pyeonchon Middle School and Gwiin Elementary School. She was part of the broadcasting club. Haerin was popular in school. She was known for being very pretty and having a nice personality.
 
-﻿> She passed HYBE's global audition in October of 2019. She started training in 2020 at the age of 13 (in middle school) for about 2.5 years.
+
+> She passed HYBE's global audition in October of 2019. She started training in 2020 at the age of 13 (in middle school) for about 2.5 years.
 
 
 
