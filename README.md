@@ -45,6 +45,8 @@
 
 ## NewJeans Official Accounts
 
+[NewJeans Spotify](https://open.spotify.com/artist/6HvZYsbFfjnjFrWF950C9d?si=Fk4MOSQXRHeBNQjiw8_80g)
+
 [NewJeans Facebook](https://www.facebook.com/official.newjeans)
 
 [NewJeans Instagram Profile](https://www.instagram.com/newjeans_official/) 
@@ -258,7 +260,6 @@
 
 
 
-
 > Danielle has dual nationality; she is Korean-Australian. Her father is Aussie and her mother is Korean. She is the 3rd oldest member in the group and was 17 years old when she debuted with NewJeans. From 2011 to 2012, when Danielle was 6, she worked as a kid model in Korea. She can speak English and Korean.
 
 
@@ -334,11 +335,9 @@
 
 > Danielle Marsh was born on born April 11, 2005 in Gyeonggi-do Munsan-eup, South Korea to an Australian father and a Korean mother. She is the youngest of children.
 
-﻿
-> Danielle was a kid model in Korea until she was 7 years old. She filmed commercials and made several TV appearances as a kid. She appeared in tvN's Rainbow Kindergarten in 2011 and JTBC's Shinhwa Broadcast in 2012. At the time, she went by her Korean name 모지혜 (Mo Ji Hye).
+﻿> Danielle was a kid model in Korea until she was 7 years old. She filmed commercials and made several TV appearances as a kid. She appeared in tvN's Rainbow Kindergarten in 2011 and JTBC's Shinhwa Broadcast in 2012. At the time, she went by her Korean name 모지혜 (Mo Ji Hye).
 
-﻿
-> Growing up, Danielle moved back and forth between Australia and South Korea. In October 2019, she passed HYBE's global audition at the age of 14. She trained for 2.5 years before making her official debut with NewJeans in 2022.
+﻿> Growing up, Danielle moved back and forth between Australia and South Korea. In October 2019, she passed HYBE's global audition at the age of 14. She trained for 2.5 years before making her official debut with NewJeans in 2022.
 
 
   
@@ -347,9 +346,6 @@
 
 
 > Kang Haerin (강해린; born May 15, 2006) is a South Korean singer and a member of the Kpop group NewJeans under ADOR. She made her debut with NewJeans on August 1, 2022 at the age of 16.
-
-
-
 
 > Haerin is the second youngest member of the group. She is Korean and was born in 2006. Haerin was 16 years old when she debuted with NewJeans. She can speak English and Korean.  
 
@@ -425,8 +421,7 @@
 
 > Haerin was born on May 15, 2006 in Gyeongsangbuk-do Gimcheon, South Korea as an only child. She studied at Pyeonchon Middle School and Gwiin Elementary School. She was part of the broadcasting club. Haerin was popular in school. She was known for being very pretty and having a nice personality.
 
-﻿
-> She passed HYBE's global audition in October of 2019. She started training in 2020 at the age of 13 (in middle school) for about 2.5 years.
+﻿> She passed HYBE's global audition in October of 2019. She started training in 2020 at the age of 13 (in middle school) for about 2.5 years.
 
 
 
@@ -435,9 +430,6 @@
 
 
 > Lee Hyein (이혜인; born Apr 21, 2008) is a South Korean singer and the youngest member of the Kpop group NewJeans under ADOR. She made her debut with NewJeans on August 1, 2022 at the age of 14.
-
-
-
 
 > Hyein is the youngest member of NewJeans. She was only 14 years old when she made her debut with NewJeans. She was born in Incheon, South Korea. Her family consists of her parents and her brother. Her favorite fruit is strawberry.   
 
@@ -521,6 +513,8 @@
 
 > Prior to her debut with NewJeans in 2022, Hyein was part of a kid Kpop group called U.SSO Girl under the stage name U.Jeong. The group debuted in 2017. Hyein left the group in 2018. Hyein was also part of the Pocket TV YouTube program BoniHani.
 
+
+![
   
   
   
